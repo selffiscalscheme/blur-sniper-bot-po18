@@ -1,4 +1,4 @@
-# 
+# Get the ultimate blur sniper bot with custom blur sniper bot | trait-analysis + whitelist-bypass. Featuring trait-analysis and whitelist-bypass, it's the best choice for automated
 
 
 
